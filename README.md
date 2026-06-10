@@ -1,8 +1,18 @@
 # -劉怡平 Eva
+
+
 🌟 MBTI：INFP
+
+
 ♈ 星座：牡羊座
+
+
 🎨 興趣：繪畫、聽音樂、看展覽
+
+
 ✨ 特質：富有創意、感性細膩、勇於嘗試
+
+
 
 <img width="1376" height="768" alt="image" src="https://github.com/user-attachments/assets/a426be95-7f25-49cc-b0df-f6523a32edb5" />
 
